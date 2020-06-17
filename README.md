@@ -1,1 +1,0 @@
-# GMC-Value-Mart
